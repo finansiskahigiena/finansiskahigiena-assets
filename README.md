@@ -1,0 +1,1 @@
+# finansiskahigiena-assets
